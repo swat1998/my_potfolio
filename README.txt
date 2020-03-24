@@ -1,4 +1,4 @@
-Done with the help of HTML 5 and image clicked by my friend.
+Done with the help of HTML 5 and image clicked by my friend :-)
 
 Credits:
 
